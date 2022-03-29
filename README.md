@@ -5,7 +5,7 @@
 - 📫 Contact me by 930522968@qq.com, or just query me on GitHub.
 
 趴在你面前的是：
-	凤暴降生 @Whidiance，aka Plexer，不焚者，弥林男爵，天龙人后裔，面子果实能力者，宇智波一族远亲，十六国统治者暨星之守护者，青青草原的卡丽熙，纯爱战士，龙之母之夫。
+	凤暴降生 @Whidiance，aka Plexer，不焚者，弥林男爵，天龙人后裔，面子果实能力者，宇智波一族远亲，十六国统治者暨星之守护者，青青草原的卡丽熙，纯爱战士，炫家军新兵。
 
 <!---
 WhiteRadiance/WhiteRadiance is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
